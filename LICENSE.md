@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe InDesign for PC | Adobe InDesign for Windows with custom Adobe InDesign for PC | Adobe InDesign for Windows Extension | version-history + image-placement, the #1
 
 
 
